@@ -1,1 +1,0 @@
-# yalnizaglarsin.github.io
